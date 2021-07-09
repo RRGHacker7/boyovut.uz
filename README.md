@@ -1,0 +1,2 @@
+# boyovut.uz
+boyovut
